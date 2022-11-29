@@ -1,1 +1,1 @@
-Only time
+Only time can tell
